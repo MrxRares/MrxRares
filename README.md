@@ -6,3 +6,4 @@
 📫 How to reach me: You can find me on Instagram @mr.rares19 or via email at mrxrares@example.com.
 😄 Pronouns: he/him
 ⚡ Fun fact: No hugs and kisses only bugs and fixes!
+![logo](https://github.com/user-attachments/assets/d28dfaf3-49ad-4f27-b45e-91d805fd1d59)
